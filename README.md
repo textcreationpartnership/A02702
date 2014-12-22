@@ -35,11 +35,19 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Hezekiahs recovery. Or, A sermon, shevving what use Hezekiah did, and all should make of their deliv
+
+1. TO THE PRESENT READER, ESPECIALly to his once-Hearers about LONDON; THE AVTHOR WISHETH all peace and goodneſſe.
+
+1. GEntle Reader, I entreate thee correct theſe faults (being the most materiall) with thy pen.
+
 #####Body#####
-Hezekiahs recovery. Or, A sermon, shevving what use Hezekiah did, and all should make of their deliv
+
+1. HEZEKIAH'S RECOVERY.
+
 #####Back#####
-Hezekiahs recovery. Or, A sermon, shevving what use Hezekiah did, and all should make of their deliv
+
+1. POSTSCRIPT.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
